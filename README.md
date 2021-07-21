@@ -1,1 +1,1 @@
-thanks for reading me, it's all I realyl wanted
+thanks for reading me, it's all I really wanted
